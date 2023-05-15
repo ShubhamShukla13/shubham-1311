@@ -1,4 +1,4 @@
-👋 Hi, I'm @shubham-1311!
+👋 Hi, I'm Shubham Shukla
 
 🌟 I'm an avid learner with a diverse range of interests spanning technology, science, history, and politics. As a dedicated generalist, I thrive on staying updated and informed about various subjects, always seeking to broaden my knowledge.
 
